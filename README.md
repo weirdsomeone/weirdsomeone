@@ -1,5 +1,5 @@
 weirdsomeone/emeraldo/zipties<p>
-collectively he/they/it<p>
+collectively he/it<p>
 traumagenic DID system, bodily 18<p>
 byf:<p>
 i do not participate in *any* discourse. do not ask me for opinions on shit like shipcourse or syscourse or i will rip off your face rabid chimp style<p>
