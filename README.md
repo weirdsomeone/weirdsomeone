@@ -7,4 +7,4 @@ i do not let hateful or mean people around us. if your sending anon hate with no
 i refuse to take a part in your dni. if you dont want proships int, i have proship friends. so do with that what you will<p>
 dni:<p>
 zionists, terfs, antiseminites, nazis, radqueers, exclusionists. if you have any questions just ask i am usually pretty chill
-<a href="https://zipties.neocities.org"><img href="https://zipties.neocities.org/delete-twitter.gif"></a>
+<a href="https://zipties.neocities.org"><img src="https://zipties.neocities.org/delete-twitter.gif"></a>
